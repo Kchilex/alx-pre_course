@@ -1,2 +1,2 @@
 better days
-
+ahead
